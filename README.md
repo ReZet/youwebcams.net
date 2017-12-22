@@ -476,6 +476,66 @@ http://youwebcams.net/online/veb-kamery-evropy/finland/tornio/
 http://youwebcams.net/online/veb-kamery-evropy/finland/teuva/  
 http://youwebcams.net/online/veb-kamery-evropy/finland/helsinki-rayon-kalasatam-panorama/  
 http://youwebcams.net/online/veb-kamery-evropy/finland/hanko-morskoy-port/  
+
+## Франция  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/aeroport-nicca-lazurnyj-bereg/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/parizh-panorama-goroda/ - 1  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/nicca-pljazh/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/parizh-reka-sena/ - 2  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/marseille-hd-live/ - 1  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/nicca-lazurnyj-bereg-onlajn/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/parizh-jejfeleva-bashnja-cam3/ - 1  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/nicca-angliyskaya-naberezhnaya/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/nicca-most-na-pljazhe/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/ski-resort-mont-seren/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/kanny-obzor/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/parizh-observatorija/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/nansi/ - 1  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/sen-zhuen-brjuneval-plyazh/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/grenobl-krepost-bastiliya/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/plugonvelen/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/tulon-port/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/trua-glavnaya-ploshhad/ - 1  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/kassis-plyazh-plage-de-la-grande-mer/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/eu/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/marsel-kruiznyj-port/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/nicca-centr-goroda/ - 1  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/lion-shosse-a7/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/biarric-grand-plyazh/ - 2  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/monpele-ploshhad-komedii/ - 1  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/sen-trope-naberezhnaya/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/biarric-panorama/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/sen-trope-obzor/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/la-roshel-chasovaya-bashnya/ - 1  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/kolliur-buhta/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/biarric-grand-plyazh-obzor/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/arkashon-plyazh-i-pristan/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/ostrov-taiti-papeete/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/duarnene-obzor/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/kassis-port/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/kapbreton-gavan/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/sen-loran-dju-var-plyazh/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/kapbreton-poberezhe/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/ruajan-plyazh-plage-de-foncillon/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/la-roshel-panorama/ - 1  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/sent-maksim-panorama/ - 1  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/kolliur-panorama/ - 2  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/sanari-sjur-mer-panorama/ - 2  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/le-lavandu-otel-kaliforniya/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/le-lavandu-port/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/bole-sjur-mer-port/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/tulon-gora-faron/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/tulon-obzor/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/parizh-dvorec-garne/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/parizh-cerkov-sen-sjulpis/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/parizh-ljuksemburgskiy-sad/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/tulon-plyazh-dju-murijon/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/parizh-park-andre-sitroena/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/sen-malo-plyazh-sillon/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/tulon-korolevskaya-bashnya/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/sen-zhil-le-ban-plyazh-de-rosh-nuar/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/ruayan-plage-de-pontaillac/  
+http://youwebcams.net/online/veb-kamery-evropy/franciya/ostrov-rejunon-panorama/
   
 ## Хорватия  
 http://youwebcams.net/online/veb-kamery-evropy/croatia/gorod-daruvar/  

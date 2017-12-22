@@ -615,3 +615,74 @@ http://youwebcams.net/online/estonia/narva-petrovskaya-ploshhad/ - 2
 http://youwebcams.net/online/estonia/tallin-plyazh-pirita/  
 http://youwebcams.net/online/estonia/tartu-gorodskaya-ratusha/ - 1  
 http://youwebcams.net/online/estonia/pyarnu-pyarnuskiy-zaliv/  
+
+
+## США
+### Нью-Йорк
+http://youwebcams.net/online/nju-jork/long-bich-poberezhe-i-pljazh/
+http://youwebcams.net/online/nju-jork/statuja-svobody/ - 2
+http://youwebcams.net/online/nju-jork/manhjetten-5-avenju/ - 1	
+http://youwebcams.net/online/nju-jork/tajms-skver-obzor/ - 1
+http://youwebcams.net/online/nju-jork/uoll-strit-atakujushhij-byk/ - 2
+http://youwebcams.net/online/nju-jork/bruklinskij-most/ - 2
+http://youwebcams.net/online/nju-jork/panorama-goroda/ - 2
+http://youwebcams.net/online/nju-jork/tajms-skver-brodvej/ - 2
+http://youwebcams.net/online/nju-jork/tajm-skver/ - 1
+http://youwebcams.net/online/nju-jork/nizhniy-manhetten/ - 2
+http://youwebcams.net/online/nju-jork/panorama-230-fifth-rooftop-bar/ - 2
+http://youwebcams.net/online/nju-jork/okrug-bronks/ - 2
+http://youwebcams.net/online/nju-jork/koni-ajlend-poberezhe/
+http://youwebcams.net/online/nju-jork/brajton-bich/ - 2
+http://youwebcams.net/online/nju-jork/nizhnij-manhetten-nju-jorkskaya-buhta/ - 2
+
+### Калифорния
+http://youwebcams.net/online/kalifornija/los-andzheles-mezhdunarodnyj-aeroport-panorama/
+http://youwebcams.net/online/kalifornija/los-andzheles-mezhdunarodnyj-aeroport/
+http://youwebcams.net/online/kalifornija/san-diego-tihij-okean/ - 2
+http://youwebcams.net/online/kalifornija/san-francisko-most-zolotye-vorota/
+http://youwebcams.net/online/kalifornija/los-andzheles-pljazh-manhjetten/
+http://youwebcams.net/online/kalifornija/sil-bich-plyazh/
+http://youwebcams.net/online/kalifornija/los-andzheles-kalifornijskij-universitet/
+http://youwebcams.net/online/kalifornija/malibu-pljazh/
+http://youwebcams.net/online/kalifornija/jel-granada-pljazh/
+
+### Гавайские острова
+http://youwebcams.net/online/gavajskie-ostrova/oahu-gonolulu-otel-sheraton/
+http://youwebcams.net/online/gavajskie-ostrova/oahu-otel-marriott-resort-spa/
+http://youwebcams.net/online/gavajskie-ostrova/maui-pljazh-kaanapali/
+http://youwebcams.net/online/gavajskie-ostrova/oahu-pupekeja-pljazh/
+http://youwebcams.net/online/gavajskie-ostrova/kauai-otel-marriott-resort/ - 2
+http://youwebcams.net/online/gavajskie-ostrova/oahu-poberezhe-vajkiki/ - 2
+http://youwebcams.net/online/gavajskie-ostrova/ostrov-maui-restoran-mamas-fish-house/
+http://youwebcams.net/online/gavajskie-ostrova/ostrov-maui-plyazh-charli-yang-bich/
+http://youwebcams.net/online/gavajskie-ostrova/ostrov-kauai-prinsvill-otel-westin-princeville-ocean-resort-villas/
+http://youwebcams.net/online/gavajskie-ostrova/ostrov-oahu-otel-a-westin-resort-spa/
+http://youwebcams.net/online/gavajskie-ostrova/ostrov-gavaji-kailua-kona-otel-sheraton-kona-resort-spa/
+http://youwebcams.net/online/gavajskie-ostrova/ostrov-kauai-prinsvill-plyazh/ - 2
+http://youwebcams.net/online/gavajskie-ostrova/ostrov-gavaji-vertoletnaya-ploshhadka-blue-hawaiian-helicopter/ - 2
+http://youwebcams.net/online/gavajskie-ostrova/ostrov-maui-otel-sheraton-maui-resort-spa/
+http://youwebcams.net/online/gavajskie-ostrova/ostrov-maui-otel-westin-kaanapali-ocean-resort-villas/
+
+### Вашингтон
+http://youwebcams.net/online/veb-kamery-ssha/vashington/kapitoliy/ - 2
+
+### Аляска
+http://youwebcams.net/online/alyaska/nacionalnyj-park-katmay-river-watch/ - 2
+http://youwebcams.net/online/alyaska/ostrov-raund-main-beach/ - 2
+http://youwebcams.net/online/alyaska/nacionalnyj-park-katmay-dumpling-mountain/
+http://youwebcams.net/online/alyaska/nacionalnyj-park-katmay-reka-naknek/
+
+### Иллинойс
+http://youwebcams.net/online/illinojs/chikago-pljazh-ouk-strit/
+http://youwebcams.net/online/illinojs/universitet/
+http://youwebcams.net/online/illinojs/shaumburg-ozero-bass/ - 2
+
+
+### Луизиана
+http://youwebcams.net/online/luiziana/novyj-orlean-exchange-alley/
+http://youwebcams.net/online/luiziana/novyj-orlean-francuzskij-kvartal/
+http://youwebcams.net/online/luiziana/deridder-centr-goroda/
+http://youwebcams.net/online/luiziana/novyj-orlean-mosty-krescent/
+http://youwebcams.net/online/luiziana/novyj-orlean-paromnyj-terminal/
+http://youwebcams.net/online/luiziana/novyj-orlean-ploshhad-dzheksona/
+http://youwebcams.net/online/luiziana/novyj-orlean-reka-missisipi/

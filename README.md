@@ -2,21 +2,23 @@
 
 Список работающих онлайн веб камер в россии, в европе и в мире на новый год 2018 и рождество. Прямые стримминговые трансляции.
 
-Австрия  
+# Вебкамеры Европы
+
+## Австрия
 http://youwebcams.net/online/veb-kamery-evropy/avstriya/linc/  
 http://youwebcams.net/online/veb-kamery-evropy/avstriya/sankt-pyolten-ratushnaya-ploshhad/  
   
-Андорра  
+## Андорра  
 http://youwebcams.net/online/veb-kamery-evropy/andorra/otel-abba-xalet/  
   
   
-Бельгия  
+## Бельгия  
 http://youwebcams.net/online/veb-kamery-evropy/belgiya/denderleu-glavnaya-ploshhad/  
 http://youwebcams.net/online/veb-kamery-evropy/belgiya/sint-niklas-rynochnaya-ploshhad/  
 http://youwebcams.net/online/veb-kamery-evropy/belgiya/mehelen/  
 http://youwebcams.net/online/veb-kamery-evropy/belgiya/veb-kamera-belgium-brussels/  
   
-Болгария  
+## Болгария  
 http://youwebcams.net/online/veb-kamery-evropy/bulgaria/burgas-plyazh/  
 http://youwebcams.net/online/veb-kamery-evropy/bulgaria/vidin-glavnaya-ploshhad/  
 http://youwebcams.net/online/veb-kamery-evropy/bulgaria/lozenec-centralnyj-plyazh/  
@@ -34,7 +36,7 @@ http://youwebcams.net/online/veb-kamery-evropy/bulgaria/primorsko-port/
 http://youwebcams.net/online/veb-kamery-evropy/bulgaria/obzor-apartamenty-yoo-bulgaria/  
 http://youwebcams.net/online/veb-kamery-evropy/bulgaria/primorsko-glavnaya-ploshhad/  
   
-Великобритания  
+## Великобритания  
 http://youwebcams.net/online/veb-kamery-evropy/velikobritaniya/london-vestminster-siti/  
 http://youwebcams.net/online/veb-kamery-evropy/velikobritaniya/london-trafalgarskaya-ploshhad/  
 http://youwebcams.net/online/veb-kamery-evropy/velikobritaniya/tirsk/  
@@ -62,14 +64,14 @@ http://youwebcams.net/online/veb-kamery-evropy/velikobritaniya/ostrov-gernsi-aje
 http://youwebcams.net/online/veb-kamery-evropy/velikobritaniya/weymouth-gavan/  
 http://youwebcams.net/online/veb-kamery-evropy/velikobritaniya/weymouth-staraya-gavan/  
   
-Венгрия  
+## Венгрия  
 http://youwebcams.net/online/vengriya/bekeshchaba-ploshhad-svyatogo-stefana/  
 http://youwebcams.net/online/vengriya/sombatxej-glavnaya-ploshhad/  
 http://youwebcams.net/online/vengriya/budapesht-reka-dunay/  
 http://youwebcams.net/online/vengriya/shalgotaryan-vid-na-gory/  
 http://youwebcams.net/online/vengriya/shopron-glavnaya-ploshhad/  
   
-Германия  
+## Германия  
 http://youwebcams.net/online/veb-kamery-evropy/germaniya/gamburg-aeroport/  
 http://youwebcams.net/online/veb-kamery-evropy/germaniya/berlin-panorama/  
 http://youwebcams.net/online/veb-kamery-evropy/germaniya/myunxen-centralnaya-ploshhad/  
@@ -139,7 +141,7 @@ http://youwebcams.net/online/veb-kamery-evropy/germaniya/ljubek-otel-redisson-bl
 http://youwebcams.net/online/veb-kamery-evropy/germaniya/sankt-peter-ording-poberezhe-plyazh/  
 http://youwebcams.net/online/veb-kamery-evropy/germaniya/berlin-aeroport-berlin-tempelhof/  
   
-Греция  
+## Греция  
 http://youwebcams.net/online/veb-kamery-evropy/greciya/afiny-parlament/  
 http://youwebcams.net/online/veb-kamery-evropy/greciya/ostrov-krit-xanya/  
 http://youwebcams.net/online/veb-kamery-evropy/greciya/ostrov-evbeya-marmari-port/  
@@ -171,7 +173,7 @@ http://youwebcams.net/online/veb-kamery-evropy/greciya/ostrov-naksos-gorod-nakso
 http://youwebcams.net/online/veb-kamery-evropy/greciya/skopelos-buhta/  
 http://youwebcams.net/online/veb-kamery-evropy/greciya/tinos-naberezhnaya/  
   
-Испания  
+## Испания  
 http://youwebcams.net/online/veb-kamery-evropy/ispaniya/lloret-de-mar-plyazh/  
 http://youwebcams.net/online/veb-kamery-evropy/ispaniya/majorka-kan-pastilya-plyazh/  
 http://youwebcams.net/online/veb-kamery-evropy/ispaniya/barselona-hram-svjatogo-semejstva/  
@@ -241,7 +243,7 @@ http://youwebcams.net/online/veb-kamery-evropy/ispaniya/pujerto-riko-de-gran-kan
 http://youwebcams.net/online/veb-kamery-evropy/ispaniya/santiago-de-kompostela-ploshhad-platerias/ - 1  
 http://youwebcams.net/online/veb-kamery-evropy/ispaniya/santiago-de-compostela-sobor-svjatogo-iakova-altar/ - 1  
   
-Италия  
+## Италия  
 http://youwebcams.net/online/veb-kamery-evropy/italiya/neapol-otel-chiaia/ - 1  
 http://youwebcams.net/online/veb-kamery-evropy/italiya/rimini-ploshhad-pennabilli/ - 1  
 http://youwebcams.net/online/veb-kamery-evropy/italiya/venecija-most-rialto/ - 2  
@@ -358,7 +360,7 @@ http://youwebcams.net/online/veb-kamery-evropy/italiya/siciliya-skala-strombolik
 http://youwebcams.net/online/veb-kamery-evropy/italiya/ulm-ulmskiy-sobor/  
 http://youwebcams.net/online/veb-kamery-evropy/italiya/ostrov-elba-portoferrajo-gavan/  
   
-Латвия  
+## Латвия  
 http://youwebcams.net/online/veb-kamery-evropy/latvija/jurmala-pljazh-v-majori/  
 http://youwebcams.net/online/veb-kamery-evropy/latvija/riga-ulica-audeju/ - 2  
 http://youwebcams.net/online/veb-kamery-evropy/latvija/jurmala-pljazh-majori/  
@@ -381,7 +383,7 @@ http://youwebcams.net/online/veb-kamery-evropy/latvija/mersrags/
 http://youwebcams.net/online/veb-kamery-evropy/latvija/cesis/  
 http://youwebcams.net/online/veb-kamery-evropy/latvija/riga-ulica-janyu/  
   
-Литва  
+## Литва  
 http://youwebcams.net/online/veb-kamery-evropy/litva/vilnjus-prospekt-konstitucii/ - 2  
 http://youwebcams.net/online/veb-kamery-evropy/litva/vilnjus-panorama/  
 http://youwebcams.net/online/veb-kamery-evropy/litva/vilnjus-rynok-hales/  
@@ -394,10 +396,10 @@ http://youwebcams.net/online/veb-kamery-evropy/litva/kaunas-ratushnaya-ploshhad/
 http://youwebcams.net/online/veb-kamery-evropy/litva/trakay-trakajskiy-zamok/  
 http://youwebcams.net/online/veb-kamery-evropy/litva/palanga-pirs/  
   
-Люксембург  
+## Люксембург  
 http://youwebcams.net/online/webcam-countries/ljuksemburg/berdorf/  
   
-Норвегия  
+## Норвегия  
 http://youwebcams.net/online/veb-kamery-evropy/norvegija/balestrann-cerkov/  
 http://youwebcams.net/online/veb-kamery-evropy/norvegija/berlevog/  
 http://youwebcams.net/online/veb-kamery-evropy/norvegija/moss-port/  
@@ -409,7 +411,7 @@ http://youwebcams.net/online/veb-kamery-evropy/norvegija/larvik-morskoy-port/
 http://youwebcams.net/online/veb-kamery-evropy/norvegija/moss-kanal/ - 2  
 http://youwebcams.net/online/veb-kamery-evropy/norvegija/olesunn-pristan/  
   
-Португалия  
+## Португалия  
 http://youwebcams.net/online/veb-kamery-evropy/portugal/ostrov-san-migel-ponta-delgada-port/  
 http://youwebcams.net/online/veb-kamery-evropy/portugal/portu-formozu/  
 http://youwebcams.net/online/veb-kamery-evropy/portugal/nordeste/  
@@ -426,7 +428,7 @@ http://youwebcams.net/online/veb-kamery-evropy/portugal/alvor-panorama/ - 2
 http://youwebcams.net/online/veb-kamery-evropy/portugal/azorskie-ostrova-ostrov-san-zhorzhi-velash/  
 http://youwebcams.net/online/veb-kamery-evropy/portugal/azorskie-ostrova-ostrov-san-zhorzhi-kaleta/ - 2  
   
-Польша  
+## Польша  
 http://youwebcams.net/online/veb-kamery-evropy/polsha/gdansk-pljazh/  
 http://youwebcams.net/online/veb-kamery-evropy/polsha/krakov-grodskaja-ulica/ - 2  
 http://youwebcams.net/online/veb-kamery-evropy/polsha/gdansk-panorama/ - 1  
@@ -461,12 +463,50 @@ http://youwebcams.net/online/veb-kamery-evropy/polsha/charnkuv/
 http://youwebcams.net/online/veb-kamery-evropy/polsha/gizhicko/  
 http://youwebcams.net/online/veb-kamery-evropy/polsha/varshava-dvorec-kultury-i-nauki/ - 2  
   
+## Финляндия  
+http://youwebcams.net/online/veb-kamery-evropy/finland/kayani/  
+http://youwebcams.net/online/veb-kamery-evropy/finland/porvoo/  
+http://youwebcams.net/online/veb-kamery-evropy/finland/raseborg/ - 1  
+http://youwebcams.net/online/veb-kamery-evropy/finland/kemi-panorama/ - 2  
+http://youwebcams.net/online/veb-kamery-evropy/finland/pieksamjaki/ - 2  
+http://youwebcams.net/online/veb-kamery-evropy/finland/karis/  
+http://youwebcams.net/online/veb-kamery-evropy/finland/hanko-pristan/  
+http://youwebcams.net/online/veb-kamery-evropy/finland/kirkkonummi-cerkov/  
+http://youwebcams.net/online/veb-kamery-evropy/finland/tornio/  
+http://youwebcams.net/online/veb-kamery-evropy/finland/teuva/  
+http://youwebcams.net/online/veb-kamery-evropy/finland/helsinki-rayon-kalasatam-panorama/  
+http://youwebcams.net/online/veb-kamery-evropy/finland/hanko-morskoy-port/  
   
+## Хорватия  
+http://youwebcams.net/online/veb-kamery-evropy/croatia/gorod-daruvar/  
+http://youwebcams.net/online/veb-kamery-evropy/croatia/punat-port/  
+http://youwebcams.net/online/veb-kamery-evropy/croatia/dubrovnik-panorama/  
+http://youwebcams.net/online/veb-kamery-evropy/croatia/podgora-poberezhe/ - 2  
+http://youwebcams.net/online/veb-kamery-evropy/croatia/korchula-staryj-gorod/ - 2  
+http://youwebcams.net/online/veb-kamery-evropy/croatia/pula-zaliv-banole/ - 2  
+http://youwebcams.net/online/veb-kamery-evropy/croatia/rieka-poberezhe/ - 2  
+http://youwebcams.net/online/veb-kamery-evropy/croatia/varazhdin-glavnaya-ploshhad/ - 1  
+http://youwebcams.net/online/veb-kamery-evropy/croatia/tkon-parom/  
+http://youwebcams.net/online/veb-kamery-evropy/croatia/tkon-buhta/    
   
-Черногория  
+## Черногория  
 http://youwebcams.net/online/chernogoriya/budva-panorama/  
+
+## Швейцария  
+http://youwebcams.net/online/shvejcariya/zheneva-zhenevskoe-ozero-otel-metropol/  
+http://youwebcams.net/online/shvejcariya/cjurih-zoopark/ - 2  
+http://youwebcams.net/online/shvejcariya/bazel-rynochnaja-ploshhad/  
+http://youwebcams.net/online/shvejcariya/bazel-ploshhad-barfusserplatz/  
+http://youwebcams.net/online/shvejcariya/bazel-panorama-otel-les-trois/  
+http://youwebcams.net/online/shvejcariya/bern-otel-best-western-hotel/  
+http://youwebcams.net/online/shvejcariya/derevnya-silvaplana/  
+http://youwebcams.net/online/shvejcariya/bernina-ekspress/  
+http://youwebcams.net/online/shvejcariya/ozero-silvaplana/  
+http://youwebcams.net/online/shvejcariya/cjurihskiy-zoopark-amurskij-tigr/ - 2  
+http://youwebcams.net/online/shvejcariya/cjurihskiy-zoopark-slony/  
+http://youwebcams.net/online/shvejcariya/zoopark-cjuriha-slony/
   
-Швеция  
+## Швеция  
 http://youwebcams.net/online/shveciya/stokgolm-ploshhad-stureplan/ - 1  
 http://youwebcams.net/online/shveciya/stokgolm-ploshhad-sergelya/ - 1  
 http://youwebcams.net/online/shveciya/porjus-severnoe-siyanie/  
@@ -475,7 +515,7 @@ http://youwebcams.net/online/shveciya/varberg-buhta-proliva-kattegat/
 http://youwebcams.net/online/shveciya/trelleborg-morskoy-port/  
   
   
-Эстония  
+## Эстония  
 http://youwebcams.net/online/estonia/tallin-ratushnaya-ploshhad/ - 1  
 http://youwebcams.net/online/estonia/tallin-panorama/ - 2  
 http://youwebcams.net/online/estonia/tallin-staryj-gorod/ - 2  

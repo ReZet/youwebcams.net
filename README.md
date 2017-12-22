@@ -492,6 +492,37 @@ http://youwebcams.net/online/veb-kamery-evropy/croatia/tkon-buhta/
 ## Черногория  
 http://youwebcams.net/online/chernogoriya/budva-panorama/  
 
+## Чехия  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/plzen-glavnaya-ploshhad/ - 1  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/shpindleruv-mlin-trassa-svaty-petr-plan/  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/shpindleruv-mlin-otel-hromovka/  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/praga-otel-kampa-garden/ - 2  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/trshebich-centr-goroda/ - 2  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/trshebich-panorama/  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/zlin-ulica-osvoboditelu/ - 2  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/telch-gorodskaya-ploshhad/ - 1  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/praga-zbraslav/  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/praga-aeroport/  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/lisa-nad-labem-centr-goroda/ - 2  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/lisa-nad-labem-panorama/  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/strakonice-glavnaya-ploshhad/  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/pardubice-panorama/  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/tanvald-centr/  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/trshebich-karlova-ploshhad/ - 1  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/praga-staromestskaya-ploshhad-kamera-2/ - 2  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/praga-vaclavskaya-ploshhad/  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/uvali/  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/naxod/ - 1  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/kromerzhizh/ - 2  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/otrokovice/ - 2  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/prsherov/ - 1  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/bogumin/  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/svyatoj-gostyn/  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/gavlichkuv-brod/ - 1  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/zlin-ploshhad-mira/ - 2  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/praga-panorama/ - 1  
+http://youwebcams.net/online/veb-kamery-evropy/czech-republic/praga-karlov-most/ - 2  
+
 ## Швейцария  
 http://youwebcams.net/online/shvejcariya/zheneva-zhenevskoe-ozero-otel-metropol/  
 http://youwebcams.net/online/shvejcariya/cjurih-zoopark/ - 2  
@@ -504,7 +535,7 @@ http://youwebcams.net/online/shvejcariya/bernina-ekspress/
 http://youwebcams.net/online/shvejcariya/ozero-silvaplana/  
 http://youwebcams.net/online/shvejcariya/cjurihskiy-zoopark-amurskij-tigr/ - 2  
 http://youwebcams.net/online/shvejcariya/cjurihskiy-zoopark-slony/  
-http://youwebcams.net/online/shvejcariya/zoopark-cjuriha-slony/
+http://youwebcams.net/online/shvejcariya/zoopark-cjuriha-slony/  
   
 ## Швеция  
 http://youwebcams.net/online/shveciya/stokgolm-ploshhad-stureplan/ - 1  
@@ -523,4 +554,4 @@ http://youwebcams.net/online/estonia/tallin-otel-nordic-hotel-forum/ - 2
 http://youwebcams.net/online/estonia/narva-petrovskaya-ploshhad/ - 2  
 http://youwebcams.net/online/estonia/tallin-plyazh-pirita/  
 http://youwebcams.net/online/estonia/tartu-gorodskaya-ratusha/ - 1  
-http://youwebcams.net/online/estonia/pyarnu-pyarnuskiy-zaliv/
+http://youwebcams.net/online/estonia/pyarnu-pyarnuskiy-zaliv/  

@@ -685,4 +685,122 @@ http://youwebcams.net/online/luiziana/deridder-centr-goroda/
 http://youwebcams.net/online/luiziana/novyj-orlean-mosty-krescent/  
 http://youwebcams.net/online/luiziana/novyj-orlean-paromnyj-terminal/  
 http://youwebcams.net/online/luiziana/novyj-orlean-ploshhad-dzheksona/  
-http://youwebcams.net/online/luiziana/novyj-orlean-reka-missisipi/
+http://youwebcams.net/online/luiziana/novyj-orlean-reka-missisipi/  
+  
+### Массачусетс  
+http://youwebcams.net/online/massachusets/boston-vid-na-jug/  
+http://youwebcams.net/online/massachusets/bostonskiy-universitet-ploshhad/  
+http://youwebcams.net/online/massachusets/giannis-kruiznyj-port/  
+http://youwebcams.net/online/massachusets/provinstaun-glavnaya-ploshhad/  
+http://youwebcams.net/online/massachusets/brant-rok-buhta/  
+http://youwebcams.net/online/massachusets/gloster-most-blinman/  
+  
+### Мичиган  
+http://youwebcams.net/online/michigan/lansing-centr-goroda/  
+http://youwebcams.net/online/michigan/dirborn-universitet/  
+http://youwebcams.net/online/michigan/solt-seynt-mari-ponarama/  
+http://youwebcams.net/online/michigan/travers-siti-panorama/  
+http://youwebcams.net/online/michigan/ostrov-biver-pristan/  
+http://youwebcams.net/online/michigan/makino-aylend-panorama/  
+http://youwebcams.net/online/michigan/maunt-plezant-centr-goroda/  
+http://youwebcams.net/online/michigan/lelande-zaliv-gud-harbor/  
+http://youwebcams.net/online/michigan/poluostrov-peninsula-old-mishen/  
+http://youwebcams.net/online/michigan/makino-siti-panorama/ - 2  
+http://youwebcams.net/online/michigan/kadillak-panorama/  
+http://youwebcams.net/online/michigan/gornolyzhnyj-kurort-boyn-mauntin-otel/ - 1  
+http://youwebcams.net/online/michigan/gornolyzhnyj-kurort-boyn-mauntin-gornolyzhnaya-trassa/  
+http://youwebcams.net/online/michigan/gornolyzhnyj-kurort-boyn-mauntin-gora-boyn/  
+  
+### Невада  
+http://youwebcams.net/online/nevada/las-vegas-centr-goroda/ - 1  
+http://youwebcams.net/online/nevada/las-vegas-znak/ - 1  
+  
+### Пенсильвания  
+http://youwebcams.net/online/pensilvanija/pittsburg-most-fort-djuken/  
+http://youwebcams.net/online/pensilvanija/lok-heyven-universitet/  
+http://youwebcams.net/online/pensilvanija/konneot-leyk-ulica-uoter-strit/  
+http://youwebcams.net/online/pensilvanija/eri-panorama/  
+http://youwebcams.net/online/pensilvanija/tannersvill-gornolyzhnyj-kurort-kemelbek-gornolyzhnaya-trassa/  
+http://youwebcams.net/online/pensilvanija/midvill-panorama/  
+http://youwebcams.net/online/pensilvanija/edinboro-universitet-edinboro/  
+http://youwebcams.net/online/pensilvanija/eri-mezhdunarodnyj-aeroport/  
+http://youwebcams.net/online/pensilvanija/eri-delovoj-centr/ - 2  
+http://youwebcams.net/online/pensilvanija/tannersvill-gornolyzhnyj-kurort-kemelbek-restoran/ - 2  
+  
+  
+### Техас  
+http://youwebcams.net/online/tehas/ostin-tehasskij-universitet/  
+http://youwebcams.net/online/tehas/dalas-panorama/ - 2  
+http://youwebcams.net/online/tehas/fort-djevis-teleskop/  
+http://youwebcams.net/online/tehas/zoopark-hjustona-zhirafy-i-strausy/  
+http://youwebcams.net/online/tehas/hjuston-zoopark-hjustona-slony/  
+http://youwebcams.net/online/tehas/zoopark-hjustona-flamingo/  
+http://youwebcams.net/online/tehas/zoopark-hjustona-nosorog-i-zebra/  
+http://youwebcams.net/online/tehas/midlend-panorama-vid-na-zapad/  
+http://youwebcams.net/online/tehas/zoopark-hjustona-shimpanze/  
+http://youwebcams.net/online/tehas/korpus-kristi-gavan/  
+  
+  
+### Флорида  
+http://youwebcams.net/online/florida/majami-sanni-ajls-bich-plyazh/ - 2  
+http://youwebcams.net/online/florida/majami-bich-otel-alexander-ocean-front/ - 2  
+http://youwebcams.net/online/florida/majami-yuzhnyj-plyazh/  
+http://youwebcams.net/online/florida/majami-otel-intercontinental/ - 2  
+http://youwebcams.net/online/florida/majami-zaliv-biscayne/  
+http://youwebcams.net/online/florida/dirfild-bich-plyazh/  
+http://youwebcams.net/online/florida/panama-siti-gulf-crest/  
+http://youwebcams.net/online/florida/panama-siti-restoran-runaway-island/  
+http://youwebcams.net/online/florida/dzhjeksonvill-pljazh/  
+http://youwebcams.net/online/florida/ki-largo-restoran-pilot-house-marina/  
+http://youwebcams.net/online/florida/ostrov-sent-dzhordzh/  
+http://youwebcams.net/online/florida/mayami-ulica-ocean-drive/ - 2  
+http://youwebcams.net/online/florida/dzhjeksonvill-panorama/  
+http://youwebcams.net/online/florida/key-west-duval-street/  
+http://youwebcams.net/online/florida/dzheksonvill-plyazh/ - 2  
+http://youwebcams.net/online/florida/mayami-otel-hilton-bentley-miami-south-beach/ - 2  
+http://youwebcams.net/online/florida/ki-uest-bar-sloppy-joes-obzor/ - 2  
+http://youwebcams.net/online/florida/ki-uest-bar-sloppy-joes-scena/ - 2  
+http://youwebcams.net/online/florida/destin-otel-sandestin-golf-and-beach-resort/  
+http://youwebcams.net/online/florida/ki-uest-otel-key-west-marriott-beachside/  
+http://youwebcams.net/online/florida/ki-ujest-monument/ - 2  
+http://youwebcams.net/online/florida/ki-ujest-otel-casa-marina-beach-resort-club-waldorf-astoria/  
+http://youwebcams.net/online/florida/matlacha-ajls-plyazh/  
+http://youwebcams.net/online/florida/sent-pitersberg-otel-boca-ciega/  
+http://youwebcams.net/online/florida/mayami-otel-sonesta-coconut-grove-miami/ - 2  
+http://youwebcams.net/online/florida/pensakola-plyazh/  
+http://youwebcams.net/online/florida/deytona-bich-plyazh/  
+http://youwebcams.net/online/florida/sent-pitersberg-plyazh/ - 2  
+http://youwebcams.net/online/florida/ki-largo-buhta/  
+http://youwebcams.net/online/florida/mayami-gorod-s-vysoty/ - 2  
+http://youwebcams.net/online/florida/tampa-universitet/  
+http://youwebcams.net/online/florida/panama-siti-bich-otel-holiday-inn-resort/  
+http://youwebcams.net/online/florida/islamorada-gavan/  
+http://youwebcams.net/online/florida/ki-largo-obzor/  
+http://youwebcams.net/online/florida/fort-majers-bich-poberezhe-otel-lani-kai-island-resort/ - 2  
+http://youwebcams.net/online/florida/kliruoter-poberezhe-otel-pier-house-60-marina/  
+http://youwebcams.net/online/florida/miami-beach-news-cafe/ - 2  
+http://youwebcams.net/online/florida/daniya-bich-pirs/  
+http://youwebcams.net/online/florida/ki-uest-restoran-smokin-tuna-saloon-bar/ - 2  
+http://youwebcams.net/online/florida/dirfild-bich-rybolovnyj-pirs/  
+http://youwebcams.net/online/florida/ki-uest-mezhdunarodnyj-ajeroport/  
+http://youwebcams.net/online/florida/miami-beach-kollinz-avenju/  
+http://youwebcams.net/online/florida/ki-uest-pab-hogs-breath/  
+http://youwebcams.net/online/florida/ki-uest-pab-hogs-breath-bar/ - 2  
+http://youwebcams.net/online/florida/islamorada-obzor-prokat-lodok-robbies/ - 2  
+http://youwebcams.net/online/florida/panama-siti-bich-plyazh-gril-bar-barefoot-on-the-beach/  
+http://youwebcams.net/online/florida/panama-siti-bich-otel-grand-panama-beach-resort/  
+http://youwebcams.net/online/florida/panama-siti-bich-otel-beachbreak-by-the-sea/  
+http://youwebcams.net/online/florida/ki-uest-kruiznyj-prichal/  
+http://youwebcams.net/online/florida/panama-siti-bich-otel-seahaven-beach-resort/  
+http://youwebcams.net/online/florida/panama-siti-bich-poberezhe-meksikanskogo-zaliva/  
+http://youwebcams.net/online/florida/dirfild-bich-poberezhe/  
+http://youwebcams.net/online/florida/pensakola-plyazh-vid-na-vostok/  
+http://youwebcams.net/online/florida/deytona-bich-mezhdunarodnyj-aeroport/  
+http://youwebcams.net/online/florida/pensakola-meksikanskiy-zaliv/  
+http://youwebcams.net/online/florida/panama-siti-bich-restoran-pineapple-willys/  
+http://youwebcams.net/online/florida/panama-siti-bich-restoran-runaway-island/  
+http://youwebcams.net/online/florida/clearwater-beach/  
+http://youwebcams.net/online/florida/dirfild-bich-pod-pirsom/ - 2  
+http://youwebcams.net/online/florida/ki-uest-pab-hogs-breath-scena/  
+http://youwebcams.net/online/florida/panama-siti-adventures-at-sea/  
+http://youwebcams.net/online/florida/ostrov-kaptiva-tween-waters-inn-island-resort/ - 1
